@@ -1,1 +1,0 @@
-# yasuokabe.github.io
